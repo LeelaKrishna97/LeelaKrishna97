@@ -19,7 +19,7 @@ Here are some ideas to get you started:
 
 - 📫 How to reach me **leelakrishnaandhe@gmail.com**
 
-- Know about my experiences [https://github.com/LeelaKrishna97/LeelaKrishna97/blob/main/Leela%20Krishna%20Resume.pdf](https://github.com/LeelaKrishna97/LeelaKrishna97/blob/main/Leela%20Krishna%20Resume.pdf)
+- Know about my experiences [Leela Krishna Resume](https://github.com/LeelaKrishna97/LeelaKrishna97/blob/main/Leela-Krishna-Resume-20240412.pdf)
 <img align="right" alt="Workaholic" width="400" src="https://cdn.dribbble.com/users/2520294/screenshots/7269423/alaminxyz.gif"> 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
